@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @josephjose1234
 - 👀 I’m interested in programming
-- 🌱 I’m currently learning to get a Job
+- 🌱 I’m currently learning 'how to get a Job?'
 - 💞️ I’m looking to give my best work
 - 📫 you can reach me at josephjose0001@gmail.com
 
